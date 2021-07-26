@@ -1,4 +1,4 @@
-# Yakusoku skins
+# Yakusoku skins 
 # TODAS LAS SCREENSHOT FUERON TOMADAS CON SKIN DE BEATMAP ACTIVADO (Ninguno de los colores en las screenshot son de la skin misma)
 
 
@@ -333,3 +333,4 @@
 ![](https://osu.ppy.sh/ss/16877700/3ba4)
 
 Wowowowowowowowowowowowowo
+Discord en caso de que algo este cagado (yakusoku#4075)
