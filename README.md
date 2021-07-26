@@ -219,19 +219,19 @@
 ![](https://osu.ppy.sh/ss/16877573/a5c6)
 
 # [halovu](https://drive.google.com/file/d/1JRjVqSSQgGZZW5yq6lnY4sjK5lascAR1/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877577/60fc)
 
 # [hddt araragi](https://drive.google.com/file/d/1Ba8llDnfqwUqm7jVAnWlgtlV7QwHYtMk/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877583/7cbb)
 
 # [idke_1.2_ktg5_edit_build_2](https://drive.google.com/file/d/1r137EfBghbGXa7F-thEQWUfl8MreWwmM/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877585/9aae)
 
 # [idkeeee 1.2](https://drive.google.com/file/d/1ufdelsLRRcnSMWA-tDLKghXVHD6Vgzmx/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877587/0339)
 
 # [ikaNyai & bakanyai new](https://drive.google.com/file/d/1gA4uGOmuV3knEoBvvFM2QKZ5y5KLazeo/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877589/c3c1)
 
 # [Kantoku Skin by RuRu SnowWhite](https://drive.google.com/file/d/19QMa-aseOAXiJUNhiYdAKGm9mmYWD03y/view?usp=sharing) 
 ![]()
