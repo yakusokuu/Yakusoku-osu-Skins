@@ -240,31 +240,31 @@
 ![](https://osu.ppy.sh/ss/16877597/6b4c)
 
 # [Karthy v6.1](https://drive.google.com/file/d/18YnO5xqoDMUVVqxDZ0Ov0mXrleqC9tl_/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877603/d7c1)
 
 # [Kizumonogatari](https://drive.google.com/file/d/1NzFPmnnRE8u5cTD-rugoXmLsGXnFv-Qs/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877605/b4d2)
 
 # [Mio Ameliorate](https://drive.google.com/file/d/1l1-dQs2hyKsN4HocMTcnOLyVo8pwQz9S/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877606/fbd1)
 
 # [Mio Araragi HDDT](https://drive.google.com/file/d/1NkWWicY4fquYPih4rspFPDSPl0XK2H-M/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877607/f7bc)
 
 # [Mio BTMC](https://drive.google.com/file/d/1r_4uCPKGyXWMZUuSsCqp3cb30mGIZeUt/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877618/b429)
 
 # [Mio yakulian](https://drive.google.com/file/d/1yBTocrnJjm1EQ5e-kYYY40DH1m3u3xyu/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877621/1da6)
 
 # [MonkoCUM](https://drive.google.com/file/d/1UcqN3FnqgW48pZf4txSmB3ncpwZNr74Y/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877622/ba89)
 
 # [MonkoHvick](https://drive.google.com/file/d/18D_c25cVWeFJNlRCukG5fbZkZc2tmyoY/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877628/9c7a)
 
 # [MonkoRustbell](https://drive.google.com/file/d/14zApHzGxk4NDwxFCc5DFBHDG2YnTjJiX/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877630/49e7)
 
 # [MonkoRyanCursor](https://drive.google.com/file/d/18q4rjJuEMcGIFb-wmI8xmebMxWIO-Y3k/view?usp=sharing) 
 ![]()
