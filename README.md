@@ -267,46 +267,46 @@
 ![](https://osu.ppy.sh/ss/16877630/49e7)
 
 # [MonkoRyanCursor](https://drive.google.com/file/d/18q4rjJuEMcGIFb-wmI8xmebMxWIO-Y3k/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877635/f691)
 
 # [morgan but fyre](https://drive.google.com/file/d/16Jl_pjN0FMKYxOhizDM47hDxHRpQGWOY/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877638/c4f7)
 
 # [-NUE HARDROCK](https://drive.google.com/file/d/1bKiUQTd-mpyXCXkg-40MkF-okBY3pIvN/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877645/6121)
 
 # [Rakyero Mix Plus v1.0](https://drive.google.com/file/d/1EbZn4U462XbiIQBQCtty2YSarJzks7TC/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877646/6a33)
 
 # [RanIA 1.1](https://drive.google.com/file/d/1zok9qv2gkunLbeTuIPkkOZt57nPLdz6o/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877648/ae9a)
 
 # [Reused](https://drive.google.com/file/d/1AjGS1ya48PoQRwOzkEs3uLy-Fu8yPJCA/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877652/70ef)
 
 # [Reused (HC AC)](https://drive.google.com/file/d/1IbGf3DEHEE1AesA8lh2kBtjrTTeXYsVX/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877658/2255)
 
 # [Reused 7-5-2021](https://drive.google.com/file/d/1RHxfJ_Cm8zIQcnHa_IUNzpWGUejVr0aF/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877660/1ea8)
 
 # [rira 0.4](https://drive.google.com/file/d/1vhu-jF68nHd1RWF6nzXB4_KT4uPxEX81/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877664/f1ff)
 
 # [ryan thing](https://drive.google.com/file/d/13YARQsSEnKr-IzhvBFrvXVdcfKgCUdCQ/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877666/2418)
 
 # [Ryuk Generic DT skin](https://drive.google.com/file/d/1ncmEB703ll_RpAQ0TtHe7gMie0FdR79B/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877669/afc7)
 
 # [ryuk rafis 2020](https://drive.google.com/file/d/1Kh9Rjmr9hSkWeRnwJHAAi-gCpORuxK4q/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877670/f1c6)
 
 # [ryukmonkok](https://drive.google.com/file/d/1D_sKjfGx_gVgcFjjvoVKIt0ZajkiybxX/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877672/6fdb)
 
 # [SUKJA+Skin](https://drive.google.com/file/d/1u620C4QBkh2092tJJinmvWw4ikT0JmC9/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877678/8c5c)
 
 # [totori-2017-08-10](https://drive.google.com/file/d/1HXGj_1K7XdRsZ7iBtrfXIsgUQQhwP-5v/view?usp=sharing) 
 ![]()
