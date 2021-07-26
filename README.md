@@ -189,34 +189,34 @@
 ![](https://osu.ppy.sh/ss/16877523/c3d6)
 
 # [delishas](https://drive.google.com/file/d/1V3ETxig76rfppnwPFe3gqhI3vl6rgnyr/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877531/a545)
 
 # [dracula_final](https://drive.google.com/file/d/1Qucc9tmToSA-9qL5es1MXJPwFz3jQDAt/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877538/d5a7)
 
 # [Dumii 10-08-17](https://drive.google.com/file/d/1Dk4kce_5_qwVdeamhwmEilEx2O8qFkwN/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877543/eb34)
 
 # [Emilia](https://drive.google.com/file/d/1dOMg8Oyzxpj-ffR0W6SwNZgiwMOfmVYq/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877547/f8bc)
 
 # [emilia_r_ver](https://drive.google.com/file/d/1qXkit3qBpQMymjQ4INr8kbRYkpPE60Zf/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877549/9845)
 
 # [-ErlingSenpai](https://drive.google.com/file/d/1Gp0LhXeaK7Z4HxsAqsgj9k9IbfsukraD/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877554/e1b6)
 
 # [faith](https://drive.google.com/file/d/1W3LWHf7fpcn2CkTUXkO4Yr9vBgmFyKZi/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877558/5d66)
 
 # [firefly](https://drive.google.com/file/d/1Qk63_CJKa3LZp3BtxEWc1XNLhl_7HAwA/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877566/bfcc)
 
 # [FlyingSpazza-pan](https://drive.google.com/file/d/1AfJiWWx6VJBhlmaqkyh33t37YKjHg9ra/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877570/ee9c)
 
 # [fyree](https://drive.google.com/file/d/1SBUn5l1IRsaN2oGXeMN4hxH4xSX5doFu/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877573/a5c6)
 
 # [halovu](https://drive.google.com/file/d/1JRjVqSSQgGZZW5yq6lnY4sjK5lascAR1/view?usp=sharing) 
 ![]()
