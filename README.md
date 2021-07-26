@@ -234,10 +234,10 @@
 ![](https://osu.ppy.sh/ss/16877589/c3c1)
 
 # [Kantoku Skin by RuRu SnowWhite](https://drive.google.com/file/d/19QMa-aseOAXiJUNhiYdAKGm9mmYWD03y/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877593/524e)
 
 # [KantokuHD](https://drive.google.com/file/d/1YNPeJp5l4WsXwbWIeOaMIO_XSaakiSOA/view?usp=sharing) 
-![]()
+![](https://osu.ppy.sh/ss/16877597/6b4c)
 
 # [Karthy v6.1](https://drive.google.com/file/d/18YnO5xqoDMUVVqxDZ0Ov0mXrleqC9tl_/view?usp=sharing) 
 ![]()
